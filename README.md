@@ -1,4 +1,4 @@
-Hello I am @Simulate39 best known as scarecrow 
+Hello I am @Simulate39 best known as scarecrow no binding I am an individual 
 
 
 
